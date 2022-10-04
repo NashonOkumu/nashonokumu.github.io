@@ -9,4 +9,4 @@ I am a lover of mathematics and computer science. I am detail oriented and exper
 
 ## Contact
 
-Would you like to be in touch? email me on [email](nashonomondi47@gmail.com) . or follow on [LinkedIn](https://www.linkedin.com/in/nashon-okumu/)
+Would you like to be in touch? contact me on [Whatsapp](0719443593) . or follow on [LinkedIn](https://www.linkedin.com/in/nashon-okumu/)
